@@ -1,2 +1,2 @@
 # Certifications
-I have attached my LinkedIn Learning certifications
+I have attached my LinkedIn Learning certifications here
